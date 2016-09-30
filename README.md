@@ -1,2 +1,4 @@
 # terning
-terning java fil
+tuben96
+s155140
+Tobias Tang Hansen
